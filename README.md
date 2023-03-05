@@ -1,0 +1,1 @@
+# Global-AI-Hub-Aygaz-Yapay-zeka-Boothcamp-Description-da-Depremi-nlemek-ve-deprem-ncesinde-ve-sonra
